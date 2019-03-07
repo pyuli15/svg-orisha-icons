@@ -9,7 +9,7 @@ Here is my page for the Yoruban Orisha Icons I created for my Drawing on the Web
 
 Yoruban Orishas are:
 
->The deities of the Yoruban practice which started in Africa. they are representede by common aspects of nature, and are represented as both male and female.
+>The deities of the Yoruban practice which started in Africa. they are represented by common aspects of nature, and are depicted as both male and female.
 
 **Orisha Icons**
 
